@@ -1,2 +1,2 @@
 # MyLifeMyMummyRule
-jo mummy woo me type krunga..
+jo mummy bolege, woo me type krunga..
